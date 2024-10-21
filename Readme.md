@@ -2,3 +2,7 @@
 Nenu gaali gopuram,
 <br>
 Nuvvu Prema Paavuram !!!
+
+What the hell is going on here???
+
+Mi hub lo drugs dorikaayi!!
